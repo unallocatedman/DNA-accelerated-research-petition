@@ -7,8 +7,8 @@ information using the same parallel efforts that
 Venter used to map the first comprehensive genome.
 
 The work itself is extremely practical, but difficult
-to sell and exspensive.  However, the benefits are also
-extreme.  
+to sell and expensive.  However, the benefits are also
+extreme and pro-humanity for all.  
 
 summary:  there are 3.2 billion gene pairs.  There are 
 approximately 28,000 genes.  Most DNA work is being done
