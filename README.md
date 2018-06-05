@@ -1,4 +1,4 @@
-# DNA-petition
+# DNA-accelerated-research-petition
 
 The purpose of this repo is to create a petition or other
 document to solicit 
